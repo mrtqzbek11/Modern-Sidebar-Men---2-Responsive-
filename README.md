@@ -1,4 +1,12 @@
-![pc](https://user-images.githubusercontent.com/75756442/179738824-9d32de91-7669-4531-a32b-49527386bdcf.gif)
+
+
+https://user-images.githubusercontent.com/75756442/179739011-3532feed-6bb6-4672-a375-6a0819269053.mov
+
+
+
+https://user-images.githubusercontent.com/75756442/179739056-e856c607-b43f-4152-8dac-dfb33dba9f47.mov
+
+
 
 
 
